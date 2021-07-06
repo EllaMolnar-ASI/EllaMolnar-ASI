@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EllaMolnar-ASI
-- 👀 I’m interested in dragons, the color blue, fiction about time travel or mytholody. 
-- 👀 I do a lot of different types of arts and crafts: paper crafts, wood crafts (scroll saw, woodburning, etc), painting, 3D modeling, figurine printing and painting.
+- 👀 I’m interested in dragons, the color blue, fiction about time travel or mythology. 
+- 👀 I do a lot of different types of arts and crafts: paper crafts, wood crafts (scroll saw, woodburning, etc), painting, 3D figurine printing and painting.
 - 🌱 I’m currently learning to use Blender to 3D model different figurines.
 - 🌱 I’m currently learning to speak Hungarian (my husband is a Transylvanian Hungarian).
 - 🌱 I’m currently learning to maintain a saltwater backyard pool.
